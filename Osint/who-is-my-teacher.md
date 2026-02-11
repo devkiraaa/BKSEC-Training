@@ -49,7 +49,7 @@ Như ở trên mình nói thì gemini cung cấp là thạc sĩ năm 2013 nên m
 <p>
   <img width="1067" height="565" alt="image" src="https://github.com/user-attachments/assets/d18b199d-58cf-4fcb-931d-f76b215e6c0d" />
 </p>
-Check thấy có 2 bài năm 2013 và 1 bài 2012. Nhìn kĩ hơn thì nhóm tác giả trong các bài này thì đều là người Hàn.</br>
+Check thấy có 2 bài năm 2013 và 1 bài 2012. Nhìn kĩ hơn thì nhóm tác giả trong các bài này thì đều có nhiều người Hàn.</br>
 Đến đây mình suy nghĩ rằng thầy hợp tác khá nhiều với các cộng sự người Hàn nên nhiều khả năng thầy này học bên Hàn nên mới có thể quen như vậy. Sau đó mình tiến hành mở 1 bài để xem. </br>
 <p>
   <img width="1545" height="871" alt="image" src="https://github.com/user-attachments/assets/c5dad51f-4c9b-4088-aef1-4de9069d03a5" />
